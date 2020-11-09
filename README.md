@@ -6,15 +6,11 @@ Over the last 5 years, the parents association has renovated the elementary scho
 
 Many families have experienced economic hardship due to COVID and the influx of refugees to the island.
 
-To contact the Parent organization see below:
+To contact the parent organization see below:
 
-
-The address is: Plomari 81200, Lesbos Greece
+Contact Person:  Andreas Varvagiannis
+email: g3d@plomariou.gr
+address: Plomari 81200, Lesbos Greece
 (Note: addresses are directed to a city, with no house numbers)
-
-Congract Person:  Andreas Varvagiannis
-g3d@plomariou.gr
-
-Greek tax number
-VAT: EL800275060
+Greek tax number: VAT-EL800275060
 
