@@ -1,3 +1,5 @@
+![](https://user-images.githubusercontent.com/11876245/99003419-e9e95280-24f2-11eb-8d6a-05dbeea529fc.jpg)
+
 # Parents-Association-of-Plomari
 
 The Parents Association of Plomari represents the students of the 3rd Elementary School and 2nd Kindergarten in the town of Plomari, on the island of Lesbos, Greece.
